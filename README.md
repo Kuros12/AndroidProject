@@ -1,2 +1,4 @@
 # AndroidProject
-eCash App Version 1, First Group Project
+you can mail me if u want the project 
+
+fajarafriansyah97@gmail.com
